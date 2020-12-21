@@ -1,3 +1,4 @@
 # hello-world
-nothing more to it yet
-not too much to regret
+nothing more to it yet;
+not a thing to regret;
+not too much to reflect;
